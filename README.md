@@ -1,9 +1,13 @@
 
-# Martín Roca: Artist and Legacy
+# M.R.
+
+ARTWORKS 
+
+Roca: Artist and Legacy
 
 ## About Martín Roca
 
-My name is Martín R. I inherited this business from my family and am continuing to uphold the Roca name, which has been distinguished in its artistic position. His works have been showcased here in Europe; he was exceptionally talented but remained an outsider in the market.
+My name is Martín R. I inherited this business from the family and am continuing to uphold the Roca name, which has been distinguished in its artistic position. His works have been showcased here in Europe; he was exceptionally talented but remained an outsider in the market.
 
 He gained prominence in Latin America in the 1990s and reached Milan, where he was an eminent figure and a favored student of Vicente Forte.
 
