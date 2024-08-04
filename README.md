@@ -5,7 +5,7 @@ ARTWORKS
 
 Roca: Artist and Legacy
 
-## About Martín Roca
+## About Mr: Roca
 
 My name is Martín R. I inherited this business from the family and am continuing to uphold the Roca name, which has been distinguished in its artistic position. His works have been showcased here in Europe; he was exceptionally talented but remained an outsider in the market.
 
