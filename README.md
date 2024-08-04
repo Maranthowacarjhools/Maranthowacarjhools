@@ -1,6 +1,4 @@
-Claro, aquí tienes el texto en inglés, listo para ser usado en GitHub:
 
-```markdown
 # Martín Roca: Artist and Legacy
 
 ## About Martín Roca
